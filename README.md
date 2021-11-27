@@ -2,7 +2,7 @@
 
 [TOC]
 
-![0]()
+[![omLSmQ.jpg](https://z3.ax1x.com/2021/11/27/omLSmQ.jpg)](https://imgtu.com/i/omLSmQ)
 
 ## 简单情况描述
 
